@@ -9,7 +9,7 @@
 
 - 📫 **amaury.guionnet@gmail.com**
 
-- ⚡ **I am clearly the best person on earth to find project names**
+- ⚡ **I love Boo more than myself**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
