@@ -7,9 +7,9 @@
 
 - 👯 I’m looking to collaborate on **anything! feel free to reach out to me**
 
-- 📫 How to reach me **amaury.guionnet@gmail.com**
+- 📫 **amaury.guionnet@gmail.com**
 
-- ⚡ Fun fact **I am clearly the best person on earth to find project names**
+- ⚡ **I am clearly the best person on earth to find project names**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
