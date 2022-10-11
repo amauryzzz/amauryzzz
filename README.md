@@ -9,7 +9,7 @@
 
 - 📫 **amaury.guionnet@gmail.com**
 
-- ⚡ **I love Boo :)**
+- 👻 **I love Boo :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
