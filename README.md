@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Amaury</h1>
-<h3 align="center">A first year student at Epitech Paris</h3>
+<h3 align="center">A second year student at Epitech Paris</h3>
 
 - 🔭 I’m currently working on **personal projects and school projects**
 
